@@ -1,1 +1,2 @@
 Jacqueline Paulitz
+paulitzj@oregonstate.edu
