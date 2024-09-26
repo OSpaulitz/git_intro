@@ -1,2 +1,1 @@
 Jacqueline Paulitz
-13
